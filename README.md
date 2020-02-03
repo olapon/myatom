@@ -1,1 +1,1 @@
-# myatom - gurpreet
+# myatom - gurpreet singh
